@@ -1,0 +1,2 @@
+# sedraga.com
+tiendamoda
